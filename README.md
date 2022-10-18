@@ -4,4 +4,4 @@
 - 💞️ I’m looking to get better at programming, and produce something by myself that i can be proud of!
 - 📫 How to reach me 
 
- Discord : sinistar 🌙#3396
+ Discord : sinistar#3396
